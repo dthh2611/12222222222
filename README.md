@@ -29,7 +29,7 @@
 总结
 对于想要观看和下载日本AV免费资源的观众来说，选择合适的平台至关重要。无论是在线视频还是影片下载，优质的网站都会提供清晰、高质量的视频资源，并确保用户的观看体验与设备安全。在使用这些资源时，务必遵循网络安全原则，选择可信平台，避免受到潜在风险的威胁。
 
-<span style="display:none;">[Canonical link] ( ）</span>
+<span style="display:none;">[Canonical link] ( https://github.com/dthh2611/12222222222 ）</span>
 
 
 
